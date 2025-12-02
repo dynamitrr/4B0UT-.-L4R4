@@ -1,13 +1,12 @@
 # P0NY.T0WN.1NF0
 
-most of my info is in my strawpage 
+everything about me is in my strawpage 
 
 https://all-about-lara.straw.page
 
-. . what's NOT stated there , is my pony town info !!!!
+. . what's NOT stated there , are these !!!!
 
-i may not write it due to character limitations, but do NOT copy my skins, you're just an unoriginal cornball
-slight inspo WITH PERMISSION is okay , however
+i may not write it due to character limitations, but do NOT copy my skins , inspo from my skins isn't ok either
 
 i use a ton of abbreviations in my skins , here's a few of them !
 
@@ -19,4 +18,4 @@ i use a ton of abbreviations in my skins , here's a few of them !
  * fan = fanloid
  * voca = vocaloid
 
-also , i use the pt app so sorry if i randomly leave (^_^ ;) . . 
+also , i use the pt app so im sorry if i randomly leave (^_^ ;) . . 
