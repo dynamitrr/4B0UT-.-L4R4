@@ -14,8 +14,10 @@ i use a ton of abbreviations in my skins , here's a few of them !
  * pkmn = pokemon 
  * ad = azumanga daioh 
  * utau = utauloid 
- * crypto = cryptonloid
+ * crypton = cryptonloid
  * fan = fanloid
  * voca = vocaloid
+ * ohshc = ouran high school host club
+ * oc = original character
 
 also , i use the pt app so im sorry if i randomly leave (^_^ ;) . . 
