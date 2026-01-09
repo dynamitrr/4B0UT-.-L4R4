@@ -1,13 +1,12 @@
-˚
-°
-o
 
 
 *everything* about me is in my [strawpage]
 
-##. . what's **NOT** stated there , are these *!!!!*##
+. . what's **NOT** stated there , are these *!!!!*
 
 i may not write it due to *character limitations*, but **do** ***NOT*** copy my skins , **inspo** from my skins ***isn't ok*** either
+
+*absolutely* ***NO*** c*h unless i know you personally 
 
 ###i use *a ton* of abbreviations in my skins , here's a few of them *!!*###
 
