@@ -3,7 +3,7 @@
 o
 
 
-*everything* about me is in my [strawpage] (https://all-about-lara.straw.page)
+*everything* about me is in my [strawpage]
 
 ##. . what's **NOT** stated there , are these *!!!!*##
 
@@ -14,10 +14,9 @@ i may not write it due to *character limitations*, but **do** ***NOT*** copy my 
  * **aa** = ace attorney
  * **pkmn** = pokemon 
  * **ad** = azumanga daioh 
- * **utau** = utauloid 
- * **crypton** = cryptonloid
- * **fan** = fanloid
- * **voca** = vocaloid
+ * **utld** = utauloid 
+ * **fnld** = fanloid
+ * **vcld** = vocaloid
  * **ohshc** = ouran high school host club
  * **oc** = original character
  * **ud** = undertale
