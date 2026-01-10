@@ -6,6 +6,8 @@
 
 i may not write it due to *character limitations*, but **do** ***NOT*** copy my skins , **inspo** from my skins ***isn't ok*** either
 
+mostly **roaming** or **with party** . . you can find me in an *aa* skin most times !!
+
 *absolutely* ***NO*** c*h unless i know you personally 
 
 ###i use *a ton* of abbreviations in my skins , here's a few of them *!!*###
