@@ -1,12 +1,4 @@
-
-
-*everything* about me is in my strawpage
-
-
-
-i may not write it due to *character limitations*, but **do** ***NOT*** copy my skins , **inspo** from my skins ***isn't ok*** either
-
-mostly **roaming** or **with friends** . . you can find me in an *aa* skin most times !!
+**do** ***NOT*** copy my skins , **inspo** from my skins ***isn't ok*** either
 
 *absolutely* ***NO*** c*h unless i know you personally 
 
@@ -26,7 +18,7 @@ i use *a ton* of abbreviations in my skins , here's a few of them *!!*
       ` aka = vipperloid`
  * **ohshc** = ouran high school host club
  * **oc** = original character
- * **ud** = undertale
+ * **ut** = undertale
  * **dr** = deltarune
  * **paswg** = panty and stocking with garterbelt
  * **tadc** = the amazing digital circus
